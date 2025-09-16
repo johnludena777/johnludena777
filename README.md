@@ -1,4 +1,4 @@
-# Hi, I'm John Ludena 👋
+# Hi, I'm a Lucky DegenDev 👋
 
 I'm a software developer with 10 years of experience, passionate about building impactful solutions. Over the past decade, I've worked on some interesting projects in the crypto world.
 
